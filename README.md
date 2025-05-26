@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @MRHaveNoID I'm a musician/artist/ and clothing line owner
-- 👀 I’m interested in ... music, clothes drawing/sketching
+- 👋 Hi, I’m @TyDivineLight  on X I'm a musician/artist/ and clothing line owner
+- 👀 I’m interested in ... music, clothes, learning to code
 - 🌱 I’m currently learning ... how to make AI art
-- 💞️ I’m looking to collaborate on ... any nft projects I have funds to cover everything also 3D animations and album covers
-- 📫 How to reach me ... IG @YA_TyMoney Twitter @MrHaveNoID
+- 💞️ Im always down to collaborate on a brand new idea and project or help fix any bugs
+- 📫 How to reach me ... IG @YA_Tyler Twitter @@TyDivineLight
 
 <!---
 MRHaveNoID/MRHaveNoID is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
